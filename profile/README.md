@@ -17,7 +17,7 @@
 <br>
 
 ## ✨ Fun Fact
-- 🤡  A circle that fool people that want to upgrade and share idea's to others
+- 🤡  A circle that fool people work together, that want to upgrade their skill and then share idea's to others
 
 <br>
 
