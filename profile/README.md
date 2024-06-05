@@ -9,7 +9,7 @@
 
 <br>
 
-## 🎯 Currently out target is to expertise on
+## 🎯 Currently our target is to focusing on
 - 🌐 Web Development
 - 🌐 UI / UX
 - 📱 Mobile Development
